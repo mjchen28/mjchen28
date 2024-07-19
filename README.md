@@ -6,7 +6,8 @@ Senior in NYCU
 Here are some ideas to get you started:
 -->
 - 🔭 Currently working on  Hollw Knight
-- 📫 How to reach me: 🤫
-- 😄 Pronouns: Jay
+  
+- 📫 How to reach me: 208
+  
 - ⚡ Fun fact: I don't really like my job
 
