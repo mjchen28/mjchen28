@@ -5,9 +5,9 @@ Senior in NYCU EE
 
 Here are some ideas to get you started:
 -->
-- 🔭 Currently working on  Hollw Knight
+- 🔭 Currently working on  IC LAB
   
-- 📫 How to reach me: 208
+- 📫 How to reach me: TKchieh28@gmail.com
   
 - ⚡ Fun fact: I don't really like my job
 
